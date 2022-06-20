@@ -1,0 +1,5 @@
+- 👋 oii,meu nome e Paola;
+- 👀 estou interessado em biologia marinha
+- 🌱 atualmente estou fazendo o ensino médio
+- 💞️ procuro colaborar em algo relacionado em biologia marinha
+- 📫 como entrar em contato comigo; paola.martins.silveira@escola.pr.gov.br
